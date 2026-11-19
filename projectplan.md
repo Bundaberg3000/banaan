@@ -9,7 +9,10 @@ Er was eens een paarse pannenkoek die een rijbewijs had gehaald voor een onderze
  Hij verzamelde regenbogen in lege pindakaaspotten.
  Op een dag ontsnapte een groene koelkast uit een circus van slapende ananassen.
  De koelkast beweerde dat hij de koning was van alle sokken ter wereld.
- Niemand geloofde hem, behalve een bijzonder nieuwsgierige cactus.
+
+
+
+
  Samen reisden ze per rolschaats naar een vulkaan van vanille-ijs.
  Daar ontmoetten ze een sprekende bezem die allergisch was voor stof.
  De bezem verkocht kaartjes voor een wedstrijd synchroonzwemmen tussen twee bakstenen.
