@@ -8,6 +8,8 @@ Er was eens een paarse pannenkoek die een rijbewijs had gehaald voor een onderze
  Op een dag ontsnapte een groene koelkast uit een circus van slapende ananassen.
  De koelkast beweerde dat hij de koning was van alle sokken ter wereld.
  Samen reisden ze per kano naar een vulkaan van vanille-ijs.
+ je bent een banaan je bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaanje bent een banaan
+ Samen reisden ze per rolschaats naar een vulkaan van vanille-ijs.
  Daar ontmoetten ze een sprekende bezem die allergisch was voor stof.
  De bezem verkocht kaartjes voor een wedstrijd synchroonzwemmen tussen twee bakstenen.
  De bakstenen wonnen overtuigend dankzij hun elegante kurkentrekkerduik.
